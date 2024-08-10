@@ -1,0 +1,2 @@
+# setcnerc
+dream. envision. embrace 
